@@ -1,0 +1,1 @@
+# synapes-lesson njydumdkmsyjghtrsdkureyrty.gjfhmdkyerwhsdfkueasdk,rhdgenjyws,emyt
